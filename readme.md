@@ -1,4 +1,4 @@
-INGREDIENTS
+INGREDIENTS (aanpassingen zogenaamd)
 
 100 g Almond flour
 100 g white flour
